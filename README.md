@@ -9,3 +9,7 @@ Eu me chamo Beatriz Biagi
  ### voce pode entrar em contato comigo 📫
 
  00001099463567sp@al.educacao.sp.gov.br
+
+ @biaa.biagi
+
+![](https://media1.tenor.com/m/QJ6IxR-_LhMAAAAC/sofia.gif)
